@@ -2,5 +2,5 @@
 
 Hello peeps!
 
-My full name is ver long...
+My full name is very long...
 I come from and island and I love pineapples!!
